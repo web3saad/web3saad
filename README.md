@@ -1,4 +1,4 @@
-# Hi there, I'm Sayad - aka Web3 Saad ✋
+# Hi there, I'm Sayad -  Web3 Saad 
 
 ## I'm a Learner, Web3 Enthusiast, and Human !
 
